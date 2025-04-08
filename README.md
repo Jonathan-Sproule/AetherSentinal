@@ -1,2 +1,2 @@
 # AetherSentinal
-Shhhhhhh
+idk it was kinda catchy
